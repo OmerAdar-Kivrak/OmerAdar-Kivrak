@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ömer Adar Kıvrak
+- 👀 I’m interested in piyano çalmak, html ve css ve js kodları yazmak, rubik küp çözmek ...
+- 🌱 I’m currently learning kara kalem resim
+- 💞️ I’m looking to collaborate on logo tasarımları, photoshop, web siteleri vb
+- 📫 You can reach me at this gmail address: omeradar.kivrak@gmail.com
